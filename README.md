@@ -1,4 +1,5 @@
 HI! read my strawpage! ^_^
 
-https://cdn.discordapp.com/attachments/1181785242177110119/1311131392255459388/dc15295a707366903839082a29eb1917.jpg?ex=6747bdc3&is=67466c43&hm=bc4d6a872f71deae75bafb938c6a01d404b48e9a60683037f405ab1ef6a4f88d&
+![ca15ce0b0fc1e6ff2517f218a7df333f](https://github.com/user-attachments/assets/f04b6e64-b367-474e-89aa-e3db348fb07b)
+
 
